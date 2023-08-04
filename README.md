@@ -13,7 +13,7 @@ The project aims to gather information related to persons of the following categ
 * The **“BENEFICIARIES”**, foreign partners of the Russian government who contribute to the implementation of its felonious plans to undermine international law and global peace, justice and democracy.
 * The **“OLIGARCHS AND CORRUPT OFFICIALS”**, who are responsible for plundering Russia on a state-wide scale, by direct membership in the Russian government or proximity to it through relatives and other proxies;
 * The **“PROPAGANDISTS”**, who are responsible for creating and disseminating state information, deliberately deceiving people in the interests of the political leadership and creating an atmosphere of widespread hatred and intolerance;
-* The **“ACCOMPLICES”**, who reap personal profit from cooperation with government authorities, to the detriment of the interests of the country and its citizens;
+* The **“ACCOMPLICES”**, who reap personal profit from cooperation with government authorities, to the detriment of the interests of the country and its citizens.
 
 # Legal entities under sanctions with names and addresses
 
